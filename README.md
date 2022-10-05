@@ -5,8 +5,10 @@ Channel link : https://www.youtube.com/channel/UC0dAOgViLw_acJ99AkVC75w
 
 You are free to download and use this content if you subcribe to my channel Art by Code (https://www.youtube.com/channel/UC0dAOgViLw_acJ99AkVC75w)
 
-Incase of anydoubts contact me. 
+Incase of anydoubts contact me:
+
 Instagram channel : https://www.instagram.com/art_by_code?r=nametag 
+
 gmail : abc4artbycode@gmail.com
 
 
